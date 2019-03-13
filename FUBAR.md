@@ -16,12 +16,8 @@ Bob mkes a PR
   
 firts part lab 14.
 
-
-
-
-
-
-
+new-branch
+second part again 
 
 asldas;lghjaskl'gjasdg
 asg;kljas;glkjas;glka
@@ -109,7 +105,4 @@ New stuff at request
 
 
 
-
-
-
-
+master
