@@ -17,6 +17,14 @@ firts part lab 14.
 
 
 
+asldas;lghjaskl'gjasdg
+asg;kljas;glkjas;glka
+asg;liasg;lkasg
+asdg;kjasdfgl;hasg
+asg;kjasdg;lasdfg
+asfg;kljhasdfgl;kjasg
+asdg.;kljag
+asdgkljbasdg;lkasdg;ljhasdfg
 
 
 
