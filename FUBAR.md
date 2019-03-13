@@ -1,4 +1,10 @@
 FUBAR BEGINS
+asdfadksfjkl
+asdfasdfasdf
+asdfasdfasdf
+asdfasdfasdf
+
+
 phase1-ted-alice
 Nobody ever finshes at the same time... Alice is still giving me a hard time.
 
